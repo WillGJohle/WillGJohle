@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @WillGJohle
+- 👀 I’m interested in: Lots of things.
+- 🌱 I’m currently learning: Some interesting stuff.
+- 💞️ I’m looking to collaborate on: Nothing, at the moment, I'll update this when that changes.
+- 📫 How to reach me: Don't.
+- 😄 Pronouns: 
+- ⚡ Fun fact: I would rather you all don't know a lot about me.
